@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://TheMrYess/rsschool-cv/cv
